@@ -1,3 +1,3 @@
 # APT-YourAIPersonalTrainer
 
-Apk - https://drive.google.com/file/d/1j172IJS2ti5XMqUE_8tWbMkthbvJgtln/view?usp=drivesdk
+Apk - https://drive.google.com/file/d/12UzoVHVoNeO9se2sTfHnw3rM-GgIgEUU/view?usp=sharing
